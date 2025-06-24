@@ -1,5 +1,5 @@
 ### Hello everyone 👋
-✨welcome to my small corner - Final-student majoring in Information Systems at HCMUTE✨
+✨welcome to my small corner - I’m a Tester and Business Analyst with a background in Information Systems from Ho Chi Minh City University of Technology and Education.✨
 
 
 ## 🌐Socials
